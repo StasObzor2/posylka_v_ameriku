@@ -1,1 +1,0 @@
-# posylka_v_ameriku
